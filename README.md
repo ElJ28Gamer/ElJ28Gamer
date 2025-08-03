@@ -1,1 +1,1 @@
-## Hi there 👋
+## Hi, this is mi profile :)
